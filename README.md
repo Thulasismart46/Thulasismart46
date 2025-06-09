@@ -11,7 +11,6 @@
 
 - 📫 How to reach me **thulasismart46@gmail.com**
 
-- ⚡ Fun fact **I'm in relationship with multiple girls**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
